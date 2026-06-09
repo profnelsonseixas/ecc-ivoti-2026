@@ -2,17 +2,17 @@
 ## Encontro de Casais com Cristo (ECC) - 2026
 ##  A Fé nos reveses da Vida
 
-*"Deus é fiel"*
+**"Deus é fiel"**
 ([Deuteronômio 7:9](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/deuteronomio/7/9))
-
-
-
 
 ### Casal: Nelson S. dos Santos e Elisabete T.R. da Silva dos Santos
 
-#### Referência
 
-MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaristia e crisma. Uberlândia: Editora A Partilha, 2014.
+
+
+### Referências
+
+BÍBLIA. Português. Bíblia Sagrada: Edição Pastoral. São Paulo: Paulus, 2014. Disponível em: [link](https://biblia.paulus.com.br/).
 
 SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 2022. Disponível em [link](https://www.vatican.va/archive/cathechism_po/index_new/indice_po.html).  Acesso 24/02/2026.
 
