@@ -1,5 +1,35 @@
 # O que é Fé?
 
+**Do ponto de vista estritamente filológico** no hebraico bíblico do Antigo Testamento, Fé engloba intrinsecamente as ações e a **fidelidade prática**.  Neste contexto, o conceito que traduzimos como "fé" não é um estado mental, uma crença abstrata ou uma mera afirmação de verdades.
+
+O significado original se apoia nas seguintes bases linguísticas e culturais:
+
+## 1. A Raiz Aman (אמן) e o termo Emuná (אֱמוּנָה)
+
+A palavra usada no Antigo Testamento para fé é Emuná, que deriva da raiz verbal Aman (da qual vem a palavra Amém).
+
+- Significado físico: Originalmente, a raiz significa "firmar", "sustentar", "dar suporte físico". É a imagem de um pilar que sustenta um teto ou de uma ama que segura firmemente um bebê nos braços.
+- Significado conceitual: Emuná não significa "acreditar que algo existe", mas sim "fidelidade", "confiabilidade" e "firmeza". Ter fé, no hebraico bíblico, é manter-se firme em uma aliança por meio de atos concretos.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 No texto grego original do Novo Testamento, a frase "Deus é fiel" em 1 Coríntios 1:9 é traduzida da seguinte forma:
 
 πιστὸς ὁ θεός
