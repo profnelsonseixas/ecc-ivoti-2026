@@ -22,3 +22,5 @@ que "se entregou à prostituição", usando os próprios presentes que Deus lhe 
 
 ## [Oseias 2: 16-25](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias/2/16)
 
+Por fim, o amor apaixonado de Deus pelo Seu Povo vence a mágoa e lhe concede a [Misericórdia](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias/6/6) e o Perdão.
+
