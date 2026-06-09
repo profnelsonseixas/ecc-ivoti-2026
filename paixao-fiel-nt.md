@@ -6,7 +6,7 @@
 - [8, 23-27](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/8/23)
 - [Mateus 9, 1-8](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/9/1)
 - [Mateus 9, 27-31](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/9/27)
-- **[Mateus 14, 22-28](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/14/22)**
+- ### **[Mateus 14, 22-28](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/14/22)**
 - [Mateus 14, 32-36](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/14/32)
 - [Mateus, 15, 21-28](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/15/21)
 - [Mateus 17, 14-21](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-mateus/17/14)
@@ -20,7 +20,7 @@
 ## Nas Cartas
 - [Romanos 1, 8-17](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-de-sao-paulo/carta-aos-romanos/1/8)
 - [Efésios 2, 8-10](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-de-sao-paulo/carta-aos-efesios/2/8)
-- **[Hebreus 11, 1-39](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-aos-hebreus/11/1)**
-- **[Tiago 1:2](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/2)**
-- **[Tiago 1:26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/26)**
-- **[Tiago 2:14-26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/2/14)**
+- ### **[Hebreus 11, 1-39](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-aos-hebreus/11/1)**
+- ### **[Tiago 1:2](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/2)**
+- ### **[Tiago 1:26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/26)**
+- ### **[Tiago 2:14-26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/2/14)**
