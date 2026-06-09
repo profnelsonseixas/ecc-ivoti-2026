@@ -3,7 +3,7 @@
 ##  *Deus é fiel* - ([Deuteronômio 7:9](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/deuteronomio/7/9))
 ## A Fé nos reveses da Vida  
 
-### Casal: Nelson S. dos Santos  *e*  Elisabete T.R.  da Silva dos Santos
+### Casal: **Nelson** S. dos Santos  *e*  **Elisabete** T.R.S. dos Santos
 
 
 
