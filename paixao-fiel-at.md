@@ -2,8 +2,9 @@
 
 A belíssima e visceral metáfora do "Deus Esposo", que ama apaixonadamente e é traído por Sua esposa, Israel (o Povo de Deus da Antiga Aliança), aparece de forma muito marcante nos seguintes Livros
 
-## [Oseias 2:4-15](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias/2/4)
-A Origem do "Amor Traído" (O Casamento Real)
+## [Oseias 2:4-15, A Origem do "Amor Traído" (O Casamento Real)](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias/2/4)
+
+A descrição mais crua da dor da traição e do ciúme divino se dá no livro de Oseias. Deus ordena que o próprio profeta se case com uma prostituta chamada Gômer para que ele sinta na pele a dor de ser traído. Oseias projeta essa dor humana no próprio Deus.
 
 ##  [Isaías 54:5-8](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/isaias/54/5),
 No livro de Isaías, a traição de Israel já aconteceu (o povo foi para o exílio na Babilônia como punição), mas Deus Se descreve como o marido que, apesar de ferido e traído,
