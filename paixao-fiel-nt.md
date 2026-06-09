@@ -15,7 +15,7 @@
 - [Marcos 9, 23-24](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/9/23)
 - [Marcos 11, 20-24](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/11/20)
 - ### [Lucas 17, 5-6](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-lucas/17/5)
-- [João 3: 16-18](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-joao/3/16)
+- ### [João 3: 16-18](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-joao/3/16)
 
 ## Nas Cartas
 - [Romanos 1, 8-17](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-de-sao-paulo/carta-aos-romanos/1/8)
