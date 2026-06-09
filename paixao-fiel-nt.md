@@ -22,5 +22,5 @@
 - [Efésios 2, 8-10](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-de-sao-paulo/carta-aos-efesios/2/8)
 - **[Hebreus 11, 1-39](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-aos-hebreus/11/1)**
 - **[Tiago 1:2](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/2)**
-- [Tiago 1:26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/26)
-- [Tiago 2:14-26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/2/14)
+- **[Tiago 1:26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/1/26)**
+- **[Tiago 2:14-26](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/cartas-catolicas/carta-de-sao-tiago/2/14)**
