@@ -18,19 +18,15 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 
 ### Sumário
 
-1. [Roteiro de catecismo resumido por perguntas e respostas](roteiro.md)
-2. [HIstória do Povo Hebreu](hebreu.md)
-3. [A religião do Povo de Israel](historiaAT.md)
-4. [Antecedentes](antecedentes.md)
-5. [O Batismo de Jesus, as tentações e a Quaresma](batismoJesus.md)
-6. [A escolha dos apóstolos](apostolos.md)
-7. [Ensinamentos de Jesus](ensinamentos.md)
-8. [Mistério Pascal](missa.md)
-9. [Atos dos Apóstolos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/atos-dos-apostolos)
-10. [Formação do Novo Testamento](novotestamento.md)
-11. [A Tradição, o Magistério e a bíblia cristã](biblia.md)
-12. [Sacramentos](sacramentos.md)
-13. [Práticas da Igreja](praticas.md)
+1. [O que é Fé?](fe.md)
+2. [Exemplos de Fé no Antigo Testamento](fe-at.md)
+3. [A Paixão Fiel de Deus pela Humanidade no Antigo Testamento](paixao-fiel-at.md)
+4. [A Infidelidade Humana](infiel-hum.md)
+5. [A Paixão Fiel de Deus pela Humanidade no Novo Testamenteo](paixao-fiel-nt.md)
+6. [A Batalha da Fé](batalha.md)
+7. [Nossa Batalha de Fé](bete.md)
+8. [Considerações finais](conclusao.md)
+
 
 
 
