@@ -22,7 +22,6 @@ Essa escolha é teologicamente rica porque:
 * Preserva a Confiabilidade: Assim como a Emuná evoca a solidez de uma rocha, o termo Pistós no grego clássico e bíblico descreve algo que passou por teste e provou-se firme. Dizer que Deus é pistós significa que Ele não falha com Suas promessas.
 * Mantém a Estrutura de Aliança: Em 1 Coríntios 1:9, Paulo completa a frase dizendo: "Deus é fiel, pelo qual fostes chamados para a comunhão de seu Filho Jesus Cristo...". A fidelidade de Deus (pistós) é o solo firme que garante a eficácia do chamado humano.
 
-Se você tiver interesse, podemos analisar como a palavra "Pistis" (Fé) mudou ligeiramente de nuances quando passou do ambiente grego pagão (onde significava apenas persuasão ou crença) para o ambiente cristão, ou podemos verificar outras passagens do Novo Testamento onde essa mesma expressão é repetida. Qual caminho prefere?
 
 
 ## Nos Evangelhos
