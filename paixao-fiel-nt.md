@@ -14,7 +14,7 @@
 - [Marcos 5, 25-43](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/5/25)
 - [Marcos 9, 23-24](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/9/23)
 - [Marcos 11, 20-24](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/11/20)
-- [Lucas 17, 5-6](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-lucas/17/5)
+- ### [Lucas 17, 5-6](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-lucas/17/5)
 - [João 3: 16-18](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-joao/3/16)
 
 ## Nas Cartas
