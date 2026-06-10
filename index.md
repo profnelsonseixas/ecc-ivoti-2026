@@ -1,6 +1,7 @@
 # Paróquia São Pedro Apóstolo
 ## Encontro de Casais com Cristo (ECC) - 2026
-## A Fé nos reveses da Vida - *Deus é fiel* - ([Deuteronômio 7:9](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/deuteronomio/7/9))
+## A Fé nos reveses da Vida
+#### *Deus é fiel* - ([Deuteronômio 7:9](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/deuteronomio/7/9))
 
 
 ### Casal: *Nelson* S. dos Santos  e  *Elisabete* T.R.S. dos Santos
