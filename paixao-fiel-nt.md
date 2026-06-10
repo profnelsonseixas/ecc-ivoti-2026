@@ -1,5 +1,39 @@
 # A Paixão Fiel de Deus no Novo Testamento
 
+Quermos aqui conectar a metáfora do Deus Esposo e Amante Apaixonado do Antigo Testamento à Paixão de Cristo no Novo Testamento. Nesses profetas, Deus se apresenta como um marido apaixonado, ciumento e ferido pela infidelidade de Sua esposa (Israel), mas que decide reconquistá-la a qualquer custo. Na Paixão, esse amor atinge o seu ápice: Jesus é o próprio Deus encarnado sofrendo fisicamente a dor dessa reconciliação.
+
+Veja como cada um desses profetas se conectam a momentos e significados específicos da Paixão no Novo Testamento:
+
+## 1. Oseias 2: O Deserto e a Reconquista pelo Sofrimento
+
+* O Antigo Testamento: Deus diz que vai atrair a esposa infiel para o deserto para lhe falar ao coração e desposá-la para sempre em fidelidade (Os 2:14, 19-20).
+* A Conexão com a Paixão: A Paixão é o "deserto" definitivo. No Getsêmani e no Calvário, Jesus assume a solidão e o isolamento total. Ele atrai a humanidade para esse deserto não para puni-la, mas para pagar a dívida da infidelidade dela. O sofrimento de Cristo na cruz é o preço de sangue que o Esposo paga para resgatar a esposa que se vendeu ao pecado.
+
+## 2. Ezequiel 16: Da Miséria Humana à Purificação no Sangue
+
+* O Antigo Testamento: Deus encontra a humanidade (Jerusalém) abandonada no campo, suja de sangue, rejeitada e nua. Ele a limpa, jura fidelidade, cobre sua nudez com mantos reais e a ama (Ez 16:4-8).
+* A Conexão com a Paixão: Na Paixão, ocorre uma inversão impressionante para cumprir essa promessa. Para cobrir a nossa nudez espiritual e vergonha, Jesus aceita ser despido publicamente na cruz. Para nos limpar do sangue da nossa corrupção (mencionada em Ezequiel), Ele derrama o Seu próprio sangue puro. O sangue e a água que jorram do Seu lado aberto (João 19:34) são o banho nupcial definitivo que purifica a Igreja/humanidade.
+
+## 3. Jeremias 2: A Dor do Amor Rejeitado e a Sede de Jesus
+
+* O Antigo Testamento: Deus lamenta com profunda dor o fato de Seu povo ter abandonado a "Fonte de Águas Vivas" para cavar cisternas rotas que não retêm a água (Jr 2:13). É o choro de um Deus que não entende como o Seu amor pôde ser trocado por futilidades.
+* A Conexão com a Paixão: No alto da cruz, Jesus brada: "Tenho sede" (João 19:28). Teologicamente, essa não é apenas uma sede física, mas a manifestação da sede de Jeremias 2. É a Fonte de Água Viva que arde de sede pelo amor da humanidade. O brado da cruz é o eco do lamento do Deus de Jeremias, sofrendo a dor de ver o Seu amor apaixonado ser rejeitado pelas Suas próprias criaturas.
+
+## 4. Isaías 54: O Casamento Eterno e a Aliança de Paz Inabalável
+
+* O Antigo Testamento: Deus promete que, embora tenha abandonado a esposa por um breve momento em Sua ira, Ele a acolherá com imensa compaixão eterna. Ele jura que Sua aliança de paz nunca será abalada (Is 54:7-10).
+* A Conexão com a Paixão: A Paixão é o momento exato em que a "ira" contra o pecado é totalmente absorvida por Cristo, dando lugar à "misericórdia eterna" profetizada. Ao dizer "Tudo está consumado" (João 19:30), Jesus sela essa Nova e Eterna Aliança de Casamento. O sacrifício na cruz garante que Deus nunca mais se irará contra a Sua noiva restaurada, transformando a dor do Calvário nas "bodas do Cordeiro".
+
+## Elementos Textuais para Incluir no seu Texto
+Para enriquecer a sua escrita, use termos que unam as duas realidades:
+
+* A Coroa de Espinhos como Diadema: O Esposo que se coroa de dor para coroar a noiva de glória.
+* Os Cravos como Aliança: As marcas nas mãos de Jesus como o selo permanente de um casamento que nem a morte pôde destruir.
+* A Nudez de Cristo: Ele se expõe para vestir a humanidade com trajes de salvação.
+
+Para te ajudar a escrever ou estruturar essa reflexão, você prefere focar em um formato de ensaio teológico, em um esboço de pregação/palestra ou em um texto mais lírico e devocional?
+
+
 
 
 No texto grego original do Novo Testamento, a frase "Deus é fiel" em 1 Coríntios 1:9 é traduzida da seguinte forma:
