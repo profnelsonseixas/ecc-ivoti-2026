@@ -1,6 +1,8 @@
 # O que é Fé?
 
-**Do ponto de vista estritamente filológico** no hebraico bíblico do Antigo Testamento, Fé engloba intrinsecamente as ações e a **fidelidade prática**.  Neste contexto, o conceito que traduzimos como "fé" não é um estado mental, uma crença abstrata ou uma mera afirmação de verdades.
+Fé é a palavra na língua portuguesa usada para traduzir a palavra EMUNÁ do hebraico antigo, que é a língua na qual o Antigo Testamento foi quase totalmente escrito.
+
+O significado de EMUNÁ no hebraico bíblico do Antigo Testamento engloba intrinsecamente as **ações** e a **fidelidade prática**.  Neste contexto, o conceito que traduzimos como "fé" não é um estado mental, uma crença abstrata ou uma mera afirmação de verdades.
 
 O significado original se apoia nas seguintes bases linguísticas e culturais:
 
