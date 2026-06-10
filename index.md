@@ -22,11 +22,10 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 1. [O que é Fé?](fe.md)
 2. [Exemplos de Fé no Antigo Testamento](fe-at.md)
 3. [A Paixão Fiel de Deus pela Humanidade no Antigo Testamento](paixao-fiel-at.md)
-4. [A Infidelidade Humana](infiel-hum.md)
-5. [A Paixão Fiel de Deus pela Humanidade no Novo Testamenteo](paixao-fiel-nt.md)
-6. [A Batalha da Fé](batalha.md)
-7. [Nossa Batalha de Fé](bete.md)
-8. [Considerações finais](conclusao.md)
+4. [A Paixão Fiel de Deus pela Humanidade no Novo Testamenteo](paixao-fiel-nt.md)
+5. [A Batalha da Fé](batalha.md)
+6. [Nossa Batalha de Fé](bete.md)
+7. [Considerações finais](conclusao.md)
 
 
 
