@@ -15,7 +15,7 @@ De acordo com o texto de [Efésios 6 no Bible Gateway](https://www.biblegateway.
 * Espada: Representa a Palavra de Deus (a única arma de ataque mencionada). [3, 5, 6, 7] 
 
 O trecho é encerrado com uma forte exortação à oração constante e vigilante no Espírito. [8, 9] 
-Se você quiser se aprofundar nessa leitura, posso ajudar a explicar o significado teológico de alguma dessas peças da armadura ou contextualizar por que Paulo usou a figura de um soldado romano nessa carta. Como gostaria de prosseguir? [10] 
+ 
 
 [1] [https://formacao.cancaonova.com](https://formacao.cancaonova.com/espiritualidade/cura-e-libertacao/vista-a-armadura-de-deus-para-o-combate-espiritual/)
 [2] [https://pt.scribd.com](https://pt.scribd.com/document/974503189/A-Batalha-Espiritual)
@@ -26,4 +26,3 @@ Se você quiser se aprofundar nessa leitura, posso ajudar a explicar o significa
 [7] [https://www.facebook.com](https://www.facebook.com/padrepaulo/videos/a-b%C3%ADblia-e-o-combate-espiritual/2237542496660213/)
 [8] [https://www.remem.me](https://www.remem.me/pt/versiculos-biblicos/batalha-espiritual/)
 [9] [https://canaldoevangelho.com.br](https://canaldoevangelho.com.br/efesios/capitulo-6/versiculos-10-a-24/estudo-biblico)
-[10] [https://www.jw.org](https://www.jw.org/pt/biblioteca/revistas/w20040915/Prossegui-adquirindo-poder-no-Senhor/)
