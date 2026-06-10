@@ -4,7 +4,7 @@ Queremos encerrar essa nossa conversa com uma oração onde, todos de pé, um ca
 
 
 ------------------------------
-## 🏛️ Transição para a Oração (Conduzida por Você e sua Esposa)
+## 🏛️ Transição para a Oração
 
 * [M]: "Queridos casais, a nossa história com o câncer nos ensinou que as promessas do altar não são palavras jogadas ao vento. Elas são a nossa Emuná. É a decisão de ser o reflexo do amor de Deus na vida do outro, principalmente quando a noite for fria."
 * [E]: "No dia do casamento, vocês receberão um sacramento que dá a vocês a autoridade espiritual de abençoar um ao outro todos os dias. Essa bênção começa hoje. Por isso, nós queremos convidar todos os casais a ficarem de pé, por favor."
@@ -27,7 +27,7 @@ Queremos encerrar essa nossa conversa com uma oração onde, todos de pé, um ca
 * [E]: "Senhor Jesus, olha para este homem que caminhará ao meu lado. Eu Te agradeço pela sua força, pelo seu cuidado e pela sua vida. Hoje, eu me comprometo a ser o suporte dele, a sua intercessora e a sua companheira fiel. Que os meus braços sejam o lugar onde ele encontra paz e que as minhas palavras construam o seu coração. Se a fraqueza bater à nossa porta, eu estarei de pé ao seu lado, sustentando a nossa casa na oração e na Emuná. Eu o abençoo hoje, em Teu Nome, para que ele seja o sacerdote do nosso futuro lar, um homem de fé inabalável, e que a nossa aliança nunca seja quebrada. Amém."
 
 ------------------------------
-## 🕊️ Encerramento Cósmico (Vocês Dois Juntos)
+## 🕊️ Encerramento de Fé (Vocês Dois Juntos)
 
 * [M]: "Senhor, sela o coração desses noivos com o Teu amor apaixonado. Que eles saiam daqui sabendo que o casamento católico é o Calvário e a Ressurreição vividos no dia a dia. Que a bênção que eles ministraram hoje mude a história do namoro e do noivado deles."
 * [E]: "Nossa Senhora e São José, guardem cada uma dessas famílias que começam a nascer aqui hoje. Que o sim de vocês ecoe por toda a eternidade."
