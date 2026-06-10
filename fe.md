@@ -25,9 +25,7 @@ O versículo clássico sobre a fé no Antigo Testamento diz: "Abraão creu (amá
 
 O uso mais ilustrativo da palavra emuná na Bíblia ocorre quando Moisés precisa manter as mãos levantadas para que Israel vença uma batalha. O texto diz: "As mãos de Moisés eram emuná (firmes, constantes) até o pôr do sol". Aqui, o termo descreve uma postura física, uma persistência material, e não um sentimento ou declaração verbal.
 
-Para o Antigo Testamento, não existe separação entre o que o homem crê no coração e o que ele faz com as mãos: a fidelidade (emuná) é o próprio modo de caminhar com Deus.
-
-Ou seja:
+Para o Antigo Testamento, não existe separação entre o que o homem crê no coração e o que ele faz com as mãos: a fidelidade (emuná) é o próprio modo de caminhar com Deus. Ou seja:
 
 ### Quando Jesus usa a palavra Fé, Ele está se referindo a uma fidelidade prática aos mandamentos.
 
