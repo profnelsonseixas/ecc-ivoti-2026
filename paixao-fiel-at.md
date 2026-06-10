@@ -1,4 +1,4 @@
-# A Paixão Fiel de Deus no Antigo Testamento
+# A Paixão Fiel de Deus e a Infidelidade Humana no Antigo Testamento
 
 A belíssima e visceral metáfora do "Deus Esposo", que ama apaixonadamente e é traído por Sua esposa, Israel (o Povo de Deus da Antiga Aliança), aparece de forma muito marcante nos seguintes Livros
 
