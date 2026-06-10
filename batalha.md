@@ -18,11 +18,20 @@ O trecho é encerrado com uma forte exortação à oração constante e vigilant
  
 
 [1] [https://formacao.cancaonova.com](https://formacao.cancaonova.com/espiritualidade/cura-e-libertacao/vista-a-armadura-de-deus-para-o-combate-espiritual/)
+
 [2] [https://pt.scribd.com](https://pt.scribd.com/document/974503189/A-Batalha-Espiritual)
+
 [3] [https://www.biblegateway.com](https://www.biblegateway.com/passage/?search=Ef%C3%A9sios%206%3A11-19&version=ARC)
+
 [4] [https://frutodoespiritoestudosbiblicos.wordpress.com](https://frutodoespiritoestudosbiblicos.wordpress.com/2018/05/28/armadura-de-deus-na-batalha-espiritual-efesios-610-18/)
+
 [5] [https://www.instagram.com](https://www.instagram.com/reel/DL4-HFAxXW8/)
+
 [6] [https://clube.cancaonova.com](https://clube.cancaonova.com/outras-materias/efesios-6-10-20/)
+
 [7] [https://www.facebook.com](https://www.facebook.com/padrepaulo/videos/a-b%C3%ADblia-e-o-combate-espiritual/2237542496660213/)
+
 [8] [https://www.remem.me](https://www.remem.me/pt/versiculos-biblicos/batalha-espiritual/)
+
 [9] [https://canaldoevangelho.com.br](https://canaldoevangelho.com.br/efesios/capitulo-6/versiculos-10-a-24/estudo-biblico)
+
