@@ -1,21 +1,22 @@
 # Considerações Finais
 
-Para encerrar a pregação com chave de ouro, essa dinâmica da oração em pé é perfeita. Ela transforma a teologia que vocês pregaram em um gesto litúrgico prático de Emuná. Os noivos deixarão de ser apenas ouvintes e passarão a ser ministros do amor de Deus um na vida do outro, inspirados pelo exemplo de superação de vocês.
-Aqui está o roteiro detalhado para os últimos 5 a 7 minutos da palestra, conduzindo os noivos para esse momento profético de bênção mútua:
+Queremos encerrar essa nossa conversa com uma oração onde, todos de pé, um casal de frente para o outro, segurando as mãos um do outro para que vocês sejam agora e no matrimõnio ministros do amor de Deus um na vida do outro, inspirados pelo Espírito Santo.
+
+
 ------------------------------
 ## 🏛️ Transição para a Oração (Conduzida por Você e sua Esposa)
 
-* [M]: "Queridos noivos, a nossa história com o câncer nos ensinou que as promessas do altar não são palavras jogadas ao vento. Elas são a nossa Emuná. É a decisão de ser o reflexo do amor de Deus na vida do outro, principalmente quando a noite for fria."
+* [M]: "Queridos casais, a nossa história com o câncer nos ensinou que as promessas do altar não são palavras jogadas ao vento. Elas são a nossa Emuná. É a decisão de ser o reflexo do amor de Deus na vida do outro, principalmente quando a noite for fria."
 * [E]: "No dia do casamento, vocês receberão um sacramento que dá a vocês a autoridade espiritual de abençoar um ao outro todos os dias. Essa bênção começa hoje. Por isso, nós queremos convidar todos os casais a ficarem de pé, por favor."
 
-(Aguardem todos ficarem de pé. O som de fundo pode colocar uma música instrumental suave e instrumental católico para criar o ambiente).
+
 
 * [M]: "Agora, esqueçam as pessoas ao redor. Olhem nos olhos do seu noivo, da sua noiva. Segurem nas mãos um do outro. Vocês estão diante da pessoa que Deus escolheu para ser o seu caminho de santificação e de salvação."
 
 ------------------------------
 ## 🔥 O Momento da Bênção Mútua (Guiada pelo Casal Palestrante)
 
-* [E]: "Rapazes, coloquem a mão direita sobre o coração da sua noiva. Moças, coloquem a mão direita sobre o ombro do seu noivo. Fechem os olhos. Nós vamos guiar vocês em uma oração. Vocês não precisam repetir em voz alta, mas digam isso no silêncio do coração de vocês, com toda a força da sua alma."
+* [E]: "Casais, dêem as mãos um de frente para o outro. Fechem os olhos. Nós vamos guiar vocês em uma oração. Vocês não precisam repetir em voz alta, mas digam isso no silêncio do coração de vocês, com toda a força da sua alma."
 
 ## 1. Oração do Noivo para a Noiva (Conduzida pelo Marido)
 
@@ -32,9 +33,6 @@ Aqui está o roteiro detalhado para os últimos 5 a 7 minutos da palestra, condu
 * [E]: "Nossa Senhora e São José, guardem cada uma dessas famílias que começam a nascer aqui hoje. Que o sim de vocês ecoe por toda a eternidade."
 * [M e E juntos]: "Em nome do Pai, do Filho e do Espírito Santo. Amém!"
 
-(Vocês podem orientar que eles finalizem com um abraço e um beijo santo, abrindo espaço para os aplausos finais da assembleia).
-------------------------------
-## 💡 Dica de Ouro para o Encerramento:
-Mantenham a postura de vocês muito conectada durante essa oração. Se vocês terminaram o testemunho do câncer de mãos dadas, continuem assim enquanto guiam os noivos. Ver vocês rezando juntos, tendo vencido a tempestade, dará a eles a certeza visual de que a Emuná é real e o Sacramento funciona.
-Para garantir que tudo corra perfeitamente, vocês já definiram qual música instrumental de fundo vão pedir para a equipe de som colocar nesse momento da oração, ou gostariam de algumas sugestões de músicas católicas que combinam com esse clima lírico e profundo?
+Pode beijar a noiva :)
+
 
