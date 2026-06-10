@@ -10,6 +10,8 @@
 
 ### Referências
 
+BÍBLIA. Bíblia de Jerusalém. Nova edição revista e ampliada. São Paulo: Paulus, 2023.
+
 BÍBLIA. Português. Bíblia Sagrada: Edição Pastoral. São Paulo: Paulus, 2014. Disponível em: [link](https://biblia.paulus.com.br/).
 
 SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 2022. Disponível em [link](https://www.vatican.va/archive/cathechism_po/index_new/indice_po.html).  Acesso 08/06/2026.
