@@ -27,6 +27,10 @@ O uso mais ilustrativo da palavra emuná na Bíblia ocorre quando Moisés precis
 
 Para o Antigo Testamento, não existe separação entre o que o homem crê no coração e o que ele faz com as mãos: a fidelidade (emuná) é o próprio modo de caminhar com Deus.
 
+Ou seja:
+
+### Quando Jesus usa a palavra Fé, Ele está se referindo a uma fidelidade prática aos mandamentos.
+
 
 
 
